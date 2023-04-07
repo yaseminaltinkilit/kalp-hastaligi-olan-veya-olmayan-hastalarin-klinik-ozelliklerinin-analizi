@@ -1,0 +1,1 @@
+# kalp-hastaligi-olan-veya-olmayan-hastalarin-klinik-ozelliklerinin-analizi
